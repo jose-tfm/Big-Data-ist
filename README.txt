@@ -1,0 +1,1 @@
+Subtemos dois ficheiros de emoções para os professores verem dois exemplos diferentes.
